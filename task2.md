@@ -1,7 +1,7 @@
 # Александр Ханеня
 ### 38 лет
 
-    ![Мое фото](https://i.pinimg.com/originals/8c/ad/85/8cad85ebb4c6777ecb9d9ab9f8c7c20c.jpg)
+![   ](https://i.pinimg.com/originals/8c/ad/85/8cad85ebb4c6777ecb9d9ab9f8c7c20c.jpg)
 
 > ## Каждый день - шаг к цели
 
